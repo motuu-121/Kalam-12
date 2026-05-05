@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Kalam-12
+- 👋 Hi, I’m @motu-12
 - 👀 I’m interested in Tech
 - 🌱 I’m currently Pursuing BCA(CS)
 - 💞️ I’m looking to collaborate on Myself
-- 📫 How to reach me abdulk1425@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: @Nothing
 
